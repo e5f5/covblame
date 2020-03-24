@@ -1,0 +1,2 @@
+Staff told to use their holidays for self-isolation. Not allowed masks or gloves. Remaining open by claiming to be an essential service.
+https://www.theguardian.com/world/2020/mar/22/waterstones-staff-say-their-health-is-at-risk-as-stores-stay-open
